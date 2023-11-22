@@ -19,7 +19,7 @@ ___🦋(ARIYEN)🦋___
 (__🐝 ARIYEN_CYBER🐝__)
 <img align="right" alt="Coding" width="400" src="https://media.tenor.com/rePDfDWO3XoAAAAd/hacking.gif">
 (__✏️ ARIYEN_CYBER✏️__)
-<h1 align="center">Hi 👋, I'm 𝐋𝐔𝐁𝐍𝐀</h1>
+<h1 align="center">Hi 👋, I'm ARIYEN</h1>
 <h3 align="center">A passionate Software Engineer from 𝐁𝐀𝐍𝐋𝐀𝐃𝐄𝐒𝐇 CYBER-ARIYEN </h3>
 ___🦋(ARIYEN_CYBER)🦋___
 <img align="right" alt="coding" width="400" src="https://user-images.githubusercontent.com/55389276/140866485-8fb1c876-9a8f-4d6a-98dc-08c4981eaf70.gif">
