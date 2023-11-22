@@ -26,7 +26,7 @@ ___🦋(ARIYEN_CYBER)🦋___
 ___🦋(ARIYEN_CYBER)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=𝐋𝐔𝐁𝐍𝐀-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="𝐋𝐔𝐁𝐍𝐀-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://https://t.me/nasir_gift_open/simplified_learner](https://https://t.me/nasir_gift_open)
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are availabal [[https://www.facebook.com/profile.php?id=100079292371997&mibextid=ZbWKwL]]
 ___🦋(ARIYEN_CYBER)🦋___
 - ⚡ Fun fact **I am funny😅**
 
@@ -122,7 +122,7 @@ ___🦋(𝑳𝑼𝑩𝑵𝑨)🦋___
 ___🦋(𝑳𝑼𝑩𝑵𝑨)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=𝐋𝐔𝐁𝐍𝐀-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="𝐋𝐔𝐁𝐍𝐀-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://https://t.me/nasir_gift_open/simplified_learner](https://https://t.me/nasir_gift_open)
+- 👨‍💻 All of my FACEBOOK-ACCOUNT are available at [https://www.facebook.com/profile.php?id=100079292371997&mibextid=ZbWKwL]()
 ___🦋(ARIYEN_CYBER)🦋___
 - ⚡ Fun fact **I am funny😅**
 
